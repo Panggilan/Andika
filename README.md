@@ -1,0 +1,2 @@
+# Andika
+Pantang nyerah
